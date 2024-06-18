@@ -5,4 +5,4 @@
 - 💞️ Nasci em São Paulo, pórem moro em Santos a 5 anos.
 - 📫 Adoro demais gatos, principalmente os meus gatos, Lorax e Trix.
   
-![](https://tenor.com/pt-BR/view/cat-cat-face-giga-chad-chad-gif-940721850618971211)
+![](https://media1.tenor.com/m/pFz1Q12_hXEAAAAd/cat-holding-head-cat.gif)
